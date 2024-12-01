@@ -1,4 +1,4 @@
-# Fortnite Chapter 6: Complete Guide for Gamers  
+# Fortnite Servers Down? Here's When They’ll Be Back Online and Chapter 6 Will Begin  
 
 **Just Now** - The entire gaming community is talking about the eagerly anticipated **Fortnite Chapter 6**! Excitement is at its highest level due to exciting new features and server outage updates. This guide has all the information you require, including the release date, highlights from the live event, and gameplay enhancements.
   
